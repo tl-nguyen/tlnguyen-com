@@ -1,1 +1,1 @@
-My Personal Blog at [tlnguyen.com](http://tlnguyen.com)
+My Personal Blog at [tlnguyen.com](http://www.tlnguyen.com)
